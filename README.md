@@ -1,0 +1,2 @@
+# PraktikumSister
+Alvika, Galih, Wira
